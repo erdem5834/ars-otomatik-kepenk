@@ -1,1 +1,0 @@
-# ars-otomatik-kepenk
